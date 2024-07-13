@@ -8,6 +8,8 @@
 <br>https://hackclub.slack.com/archives/C06SBHMQU8G/p1720724159845589
 <br>Added on about 2 inches.  
 
-<p>Thirteenth of July 2024 - One session</p>
+<p>Thirteenth of July 2024 - Two sessions</p>
 <br>https://hackclub.slack.com/archives/C06SBHMQU8G/p1720887086516599
-Added on about 2 inches.
+<br>Added on about 2 inches.
+<br>https://hackclub.slack.com/archives/C06SBHMQU8G/p1720893093749429
+<br>Changed colors, another 2 inches.
